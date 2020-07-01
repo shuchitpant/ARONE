@@ -1,6 +1,6 @@
 # ARONE
 
-Go to the link - https://drive.google.com/file/d/1tP17vffwu8lVHO1OhWkSUoUURuyu4vI0/view - to Download and install the ARONE app
+Go to the link - https://drive.google.com/file/d/1tP17vffwu8lVHO1OhWkSUoUURuyu4vI0/view - to Download and install the ARONE app (ANDROID ONLY)
 
 
 
